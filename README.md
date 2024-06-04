@@ -2,7 +2,7 @@
 - 👀 I’m interested in UI/UX, Training. 
 - 🌱 I’m currently learning Blocks Coding and Python.
 - 💞️ I’m looking to collaborate on website development, ui/ux, training. 
-- 📫 Reach me - prashscoop@gmail.com
+- 📫 Reach me - prashansa18.patel@gmail.com
 - 😄 Pronouns: Her/She
 - ⚡ Fun fact: Remember me as a Resourceful/Self starter.
 
